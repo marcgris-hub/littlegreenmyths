@@ -4,4 +4,4 @@ Address sustainability issues
 towards sustainability is about making smart decisions, and it starts with knowing the real facts.
 Embrace the adventure of mythbusting and watch as your choices propel you towards a truly
 green future. <a href="https://www.hotspringjourneys.com">Hot Spring Journeys</a> highlights the beauty of hot springs.  <a href="https://www.yourbugclub.com">Your Bug Club</a> shares the fun side of learning about insects. 
-Is it Passive Income <a href="https://www.isitpassiveincome.com">Is it passive income</a> provides tips for creating passive income. 
+ <a href="https://www.isitpassiveincome.com">Is it Passive Income</a> provides tips for creating passive income. 
